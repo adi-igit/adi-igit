@@ -18,7 +18,7 @@
 
 ## 📫 Let's Connect
 
-📧 Feel free to reach out to me at [adiigiths@gmail.com](mailto:adiigiths@gmail.com)
+📧 Feel free to reach out to me at [adiigiths@gmail.com](mailto:adiigiths@gmail.com)<br>
 📱 Connect with me on [LinkedIn](https://www.linkedin.com/in/adi-igit-a06489246/)
 
 ## 💡 Fun Fact
